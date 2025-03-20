@@ -45,8 +45,7 @@
 
 ## 📢 Credits  
 🔥 **Dibuat oleh Tim Traser Official**  
-🚀 **Developed by Yan Official**  
-🧠 **GPT membantu membuat ini jadi lebih brutal**  
+🚀 **Developed by Yan Official** 
 
 🛡 **Tools ini dibuat untuk EDUCATIONAL PURPOSES ONLY!** Kami tidak bertanggung jawab atas penggunaan ilegal.  
 
